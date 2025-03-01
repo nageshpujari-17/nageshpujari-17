@@ -5,7 +5,7 @@
 
 - 📫 Connect with me: **pujarinagesh017@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1xntXeZY3I0sUbvk8YYZgBOZAucuo691n/view?usp=drive_link](https://drive.google.com/file/d/1xntXeZY3I0sUbvk8YYZgBOZAucuo691n/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1xntXeZY3I0sUbvk8YYZgBOZAucuo691n/view?usp=drive_link](https://drive.google.com/file/d/13ghxibVuESihccqE9ngSBS_oxWGPmAKu/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
